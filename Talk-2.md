@@ -1,0 +1,8 @@
+A princess and a dragon - it sounds like a fairytale! Think St. George or Perseus and Andromeda, or Sleeping Beauty... or Shrek. It's a fairytale! I mean, obviously there's a lot going on here, but if we start just by taking a step back and seeing that actually these images we're being given are not , they're not *strange* to us as humans. Whether you're in the East or the West, England or Russia or China, these pictures are familiar to us. And there's a reason why humans have always loved to tell each other stories of great big monsters, and beautiful royal maidens - it's because they're true. According to Revelation here, these myths and fairytales are *true*!
+
+Because there really *is* a princess with heavenly beauty, and there really *is* a wicked dragon who wants to kill her, and eat her children, and there really is a St. George, a Knight who does what knights do best - slay dragons. But let's just get into it properly. Who are these characters in our fairy story, and why does Jesus want us to see this?
+
+So we started with this woman, dressed in the sun and moon, and who has this crown with twelve stars. What do people think that could be? *Let people speak?*
+What does the number twelve normally represent in the Bible? Yeah! The 'twelve tribes of Israel'. So this princess, is a sort of personification of Israel, of God's people. And, it says, that she *"cried out in pain as she was about to give birth"*. She's about to give birth.
+
+And there's this dragon, with seven heads and a bunch of horns, and seven crowns. If you were paying attention, we actually do get told in v9 who this dragon is. It says *"that ancient serpent called the devil, or Satan"*

@@ -58,7 +58,7 @@ Fullstop. And that's how the book of Daniel ends, with the hope of an inheritanc
 
 *"And I saw a mighty angel proclaiming in a loud voice, “Who is worthy to break the seals and open the scroll?” [in other words, who is able to bring about the promises of God, life for His people?] But no one in heaven or on earth or under the earth could open the scroll or even look inside it. I wept and wept because no one was found who was worthy to open the scroll or look inside."*
 
-John weeps. because the question is - will those promises of God ever come? Will His people ever receive their inhertance of life?
+John weeps. because the question is - will those promisies of God ever come? Will His people ever receive their inhertance of life?
 
 *"[But] Then one of the elders said to me, “Do not weep! See, the Lion of the tribe of Judah, the Root of David, [this is Jesus, **He**] has triumphed. **He** is able to open the scroll and its seven seals.”*
 
@@ -117,5 +117,6 @@ We know what it looks like right?
 Fighting sin, and Satan, and believing and trusting and loving that God.
 I know I wish my life looked more like that.
 Because it really is true.
+And it's true in heaven.
 
 That throne is  more real than anything else around us right now. Becasue when the End Times conclude, and the seventh and final seal of that scroll is broken, this room will pass away. But that throne will remain, and it will grow bigger, and more solid than anything we can comprehend. And it will be wonderful, when heaven and earth are reunited. Tomorrow morning we're going to think a lot more about that throne, and about the Lamb on it, but let's leave it there for now. Jesus reigns in heaven, let me pray quickly.
