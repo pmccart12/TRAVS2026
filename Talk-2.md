@@ -1,21 +1,33 @@
-A princess and a dragon - it sounds like a fairytale! Think St. George or Perseus and Andromeda, or Sleeping Beauty... or Shrek. It's a fairytale right! I mean, obviously there's a lot going on here, but if we start just by taking a step back and seeing that actually these images we're being given are not , they're not *strange* to us as humans. Whereever you're from in the world, these pictures are familiar to us. And there's a reason why humans have always loved to tell each other stories of great big monsters, and beautiful royal maidens - it's because they're true. According to Revelation here, these myths and fairytales are *true*!
+So, we're back in Revelation, this book of symbols and images.
 
-Because there really *is* a princess with heavenly beauty, and there really *is* a wicked dragon who wants to kill her, and eat her children, and there really is a St. George, a Knight who does what knights do best - slaying dragons. But let's get into it properly. Who are these characters in our fairy story, and why does Jesus want us to see this?
+Jesus has shown us already that image, remember, of that throne this morning, the throne where all of reality gathers round to worship God, and to worship His Son. The Lamb who died but rose again to reign from heaven over the entire universe.
 
-So we started with this woman, dressed in the sun and moon, and who has this crown of twelve stars. Who do people think that could be?*Let people speak?*
+And, this evening, we're going to look at another part of this vision, with more symbols, more images that begin to layer on top of what we've already seen, and continue to build up for us this whole worldview. We've already had it read, and we have, it says, these two 'signs', these two symbols. We have, first, this *"woman clothed with the sun, with the moon under her feet and a crown of twelve stars on her head."*. And then we also have this *"enormous red dragon with seven heads and ten horns and seven crowns on its heads"*".
+
+But, actually, we're already familiar with these images, right? I mean, we have a woman with a crown, so like a queen or a princess. And we've got a big red dragon.
+
+A princess and a dragon - it sort of sounds like a fairytale! Think St. George or Sleeping Beauty... or Shrek. It's a fairytale right! I mean, obviously there's a lot going on here, but if we start just by taking a step back and seeing that actually these pictures we're being given are not , they're not *strange* to us as humans.  People have always loved to tell each other stories of great big monsters, and beautiful royal maidens, and there's a reason for it. And it's because those stories are true. According to Revelation here, these myths and fairytales are *true*!
+
+Because there really *is* a princess with heavenly beauty, and there really *is* a wicked dragon who wants to kill her, and eat her children, *and* there really is a St. George, a Knight who does what knights do best - which is slay dragons. But, as I said, there's a lot going on, so let's just get into it. Who are these characters in our fairy story, and why does Jesus want us to see this?
+
+So we started with this woman, dressed in the sun and moon, radiant splendour, and she has this crown of twelve stars. So, who do we think this could be? *Let people speak?*
 What does the number twelve normally represent in the Bible? Yeah! The 'twelve tribes of Israel'. So this princess, is a sort of personification of Israel, of God's people. And, it says, that she *"cried out in pain as she was about to give birth"*. Israel is about to have a child.
 
 And there's also this dragon, with seven heads and a bunch of horns, and seven crowns. If you were paying attention, we actually do get told later on in v9 who this dragon is. It says it's *"that ancient serpent [, the serpent from the Garden of Eden,] called the devil, or Satan"*. And Satan the Dragon, it says, *"swept a third of the stars out of the sky and flung them to the earth"*. 
 
-And we just heard what those stars were, right?  Princess Israel has a crown of stars, so  they represent God's people. And if you go back to the book of Daniel, which we were thinking about this morning, and from which Revelation, we know, references a lot, it actually talks about this event. And, there, again, the stars are identified as the holy people of God. And so this is talking about Satan attacking God's people. And the point in Daniel, as I think it is here, is that this dragon... is strong. It says in Daniel that this dragon *"will cause astounding devastation and will succeed in whatever he does"*. He's not just some push over - Satan really did tempt Adam and Eve to rebel against God. He really did lead the whole world astray. He really did sweep the stars out of heaven. And so we have this image of this Devil Serpent, with real power and, just like in every fairytale, he is *scary*. He's seriously scary. And now he turns his sights to the Child of this poor woman. v4:
+And we just heard what those stars were, right?  Princess Israel has a crown of stars, so they, in a way, *also* represent God's people. And just quickly, one thing to remember as we read Revelation, is that we are given all these images, but they sort of flow in and out of one another as the book goes on, right. And, often, different things are used to describe the same idea. We've already talked about how we need to read this vision, as a vision. It's visual, it's striking, it's not a code to be worked out.
 
-*"The dragon stood in front of the woman who was about to give birth, so that it might devour her Child the moment He was born."* But this Child is no ordinary child, we then discover. Because this child is the Son who will *"rule all the nations with an iron scepter"*, it says. And it's a reference to Psalm 2, a psalm all about the Messianic Son of God. This is Jesus, who comes from the bloodline of Abraham, the royal line of King David, born of Princess Israel, and as we saw this morning, look at the end of v5 - despite Satan's attempts to destroy and devour Him, He now reigns from the throne of God. The *"Child was snatched up to God and to His throne"*.
+And so, the striking image we have is Satan, this great scarlet dragon, attacking and sweeping with his thick tail the people of God out of heaven.
 
-We'll come back to v6, but just jump with me quickly to v7. Jesus has risen from the dead, He's ascended to the throne of God in power - and so now what happens to that enormous red dragon?
+It actually talks about this event in Daniel and, there, as I think it is here, is that this dragon... is strong. It says in Daniel that this dragon *"will cause astounding devastation and will succeed in whatever he does"*. This isn't Toothless from How to Train Your Dragon - Satan really did tempt Adam and Eve to rebel against God. He really did lead the whole world astray. He really did sweep the stars out of heaven. And we have this image of this Devil Serpent, with real power. And, just like in every fairytale, he is *scary*. He's seriously scary. And now he turns his beady eyes to the Child of this poor woman. v4:
 
- Well, war breaks out in heaven, it says, and all the angels of God, led by the Archangel Michael, who we also hear about in Daniel, they now take up arms against that Ancient Serpent and his demons. But though perhaps once this dragon was strong and mighty, Jesus is now risen from the dead. He has triumphed. And so, v8, Satan is not strong enough. He who had swept the stars from heaven now himself is hurled down to earth, and he is defeated.
+*"The dragon stood in front of the woman who was about to give birth, so that it might devour her Child the moment He was born."* But, of course, this Child is no ordinary child, we then discover. Because this child is the Son who will *"rule all the nations with an iron scepter"*, it says. And it's a reference to Psalm 2, a psalm all about the Messianic Son of God. This is Jesus, right, who comes from the bloodline of Abraham, the royal line of King David, born of Princess Israel, and as we saw this morning, look at the end of v5 - despite Satan's attempts to destroy and devour Him, He now reigns from the throne of God. The *"Child was snatched up to God and to His throne"*.
 
-When we say that Satan was 'in heaven' before the resurrection, and now is 'on earth' after, we're not talking about him being in heaven as a 'good angel', and then is cast out of heaven as a demon, so to speak. It's not speaking about that particular thing here. Rather, it means that - heaven is where there is power. And Satan had a very particular kind of power. Let me just read from v10 :
+And jump with me now to v7. Jesus has risen from the dead, He's ascended to the throne of God in power - and so now what happens to that enormous red dragon?
+
+Well, war breaks out in heaven, it says, and all the angels of God, led by the Archangel Michael, who we also hear about in Daniel, they now take up arms against that Ancient Serpent and his demons. And they have a massive fight. But though perhaps once this dragon was strong and mighty, Jesus is now risen from the dead. He has triumphed. And so, v8, Satan is not strong enough. He who had swept the stars from heaven now himself is hurled down to earth, and he is defeated.
+
+And when we say that Satan was 'in heaven' before the resurrection, and now is 'on earth' after, we're not talking about him being in heaven as a 'good angel', and then is cast out of heaven as a demon, so to speak. It's not speaking about that particular thing here. Rather, it means that - heaven is where there is power. And Satan had a very particular kind of power. Let me just read from v10 :
 
 *"**Now** have come the salvation and the power
     and the kingdom of our God,
@@ -29,18 +41,19 @@ They triumphed over him
  
 See, Satan's position in heaven was to *accuse* the people of God. What was the power he had over us? It was that we were sinners, we were at fault, and he was justified in accusing us day and night. Accusing us of all the guilt of all the ways in which we'd joined in with him, in rebelling against our Creator, in doing every day what was evil and wicked and ugly.
 
-But *now*, now has come the salvation... and the power... and the kingdom of our God. Why? Because *we* have triumphed over Satan it says, look at this in v11, just look at it and *treasure* these words. We have triumphed over the dragon, that ancient and terrible serpent, we have triumphed over him*by the blood of the Lamb*. That Lamb at the centre of the universe. Satan's power has been stripped away because he can no longer accuse us before God, for Jesus has bought us with His own blood. That's what that means, we have conquered by the blood of the Lamb, and we are made white as snow, and all of our sin, past, present, and future, is done away with. Satan no longer has anything to accuse us with.
+But *now*, now has come the salvation... and the power... and the kingdom of our God. Why? We have triumphed over Satan it says, look at this in v11, just look at it and *treasure* these words. We have triumphed over the dragon, that ancient and terrible serpent, we have triumphed over him*by the blood of the Lamb*. That Lamb at the centre of the universe. And Satan's power has been stripped away because he can no longer accuse us before God, for Jesus has bought us with His own blood. That's what that means, we have conquered *by the blood of the Lamb*, and we are made white as snow, and all of our sin, past, present, and future, is done away with. Satan is no longer able to accuse us.
 
 And so Michael and his angels **strike** Satan down, and he falls, twisting and screaming and cursing - but in heaven he is defeated, and there is nothing that he can do. v12:
 
 *"[So] rejoice, you heavens
     and you who dwell in them!
+ [But this is catch]
 But woe to the earth and the sea,
     because the devil has gone down to you!
 He is filled with fury,
     because he knows that his time is short.”*
 
-Satan is defeated in heaven, and he knows it. And *we* know that what is true in heaven must become true on earth, but we're not there just yet. And so this is what the dragon does. Looking at v13 and 15:
+Satan is defeated in heaven, and *we* know that what is true in heaven must become true on earth, but we're not all the way there yet. Satan is defeated in heaven, he's as good as gone, but, for the time being, he still roams the earth. And so this is what the dragon does. Looking at v13 and 15:
 
 *"When the dragon saw that he had been hurled to the earth,
 he pursued the woman who had given birth to the male child.
@@ -48,20 +61,29 @@ he pursued the woman who had given birth to the male child.
 [And] from his mouth the serpent spewed water like a river, [it's that sea again, those waters of chaos,]
 [the serpent spewed water like a river, ] to overtake the woman and sweep her away with the torrent."*
 
-Satan couldn't destroy Christ, so now he will try and destroy Christ's people. This slithering crawling serpent now sets his seven sets beady eyes on pursuing and overtaking and consuming the Princess. And he bellows torrents and tsunamis of dark water the he might drown her with all the demonic force that he can muster.
+Satan couldn't destroy Christ, so now he will try and destroy Christ's people. This slithering crawling serpent now sets his seven sets eyes on pursuing and overtaking and consuming the Princess. And he bellows torrents and tsunamis of dark water the he might drown her with all the demonic force that he can muster.
 
-God's people on earth, until Jesus comes back, will face persecution from Satan. Sometimes it looks like, physical persecution - imprisionment, torture, death. But I think, for us, in the West, where we have pretty good religious freedom, it can look a bit different. Satan is still after us, but just in different ways.
+God's people on earth, we, until Jesus comes back, we will face persecution from Satan. Sometimes it looks like, physical persecution - imprisionment, torture, death. But I think, for us, in the West, where we have pretty good religious freedom, it can look a bit different. Satan is still after us, but just in different ways.
 
-And we've touched on it a bit this weekend already, but it's that temptation to compromise. All the world around us is happy to appease the dragon, to be led astray, happy to be washed over and swept away on a current of sin and self-gratification. And when the waters tug at our feet it would be so easy, and so much less effort, just to go along with the crowd. We know what this means right. It means that when 
+There's the sort of soft but severe psychological squeeze, that temptation from the world around us to compromise. And when the waters of sin and self-gratification tug at our feet it would be so easy, and so much less effort, just to go along with the crowd. Whether that's when we're at school or work, or with our friends, or when we're alone in our rooms, the dragon is always prowling, always lurking, and we've got to be vigilant.
 
-When we compromise with the world we're walking right into the dragon's lair. And so we need to run, and we need to *flee* sin and Satan That's what the Princess in our story does, right. v6 :
+Because the society around us is happy to just to walk right into his lair. But we need to run, and we need to *flee* sin and Satan That's what the Princess in our story does, right. v6 :
 
 *"The woman **fled** into the wilderness"*
-She goes to a barren place, where perhaps she misses the comfort of the world. It's like Israel, right, it's like Israel after the Exodus. They flee Egypt into the desert, and there's a temptation to just go back. But the Lord provides manna and quail and water for them. And as He provided for His people in the wilderness then, Jesus is showing us here that He provides for His people, the Church, us, now - even as Satan chases after us with his chariots. v14:
+And it's like Israel after the Exodus, right? They flee Egypt into the desert, and there's a temptation to just go back. But the Lord provides manna and quail and water for them. And as He provided for His people in the wilderness then, Jesus is showing us here that He provides for His people, the Church, us, now - even as Satan chases after us with his chariots. v14:
 
-*"The woman was given the two wings of a great eagle, 
+*"The woman was given the two wings of a great eagle, [it is not her own strength,]
 so that she might fly to the place prepared for her in the wilderness,
  where she would be taken care of for a time, times and half a time"*
  
- This "time, times and half a time" is the same as the 1260 days in v6. 1260 days is about 42 months, or three and a half years (time, times, and half a time). As ever in Revelation, these numbers are symbolic. 42 months reflects the 2 years Israel moved from Egypt to the Promised Land plus 40 years wandering. So 42 years in total. Various forms of this number are throughout the book of Revelation, and also in Daniel. But the point is that this time is the time specifically after the Exodus, after the cross and resurrection -but before entering the Promised Land, before the return of Jesus. And we're in this time now. We're the Church fleeing into the wilderness.
+ This "time, times and half a time" is the same as the 1260 days in v6. 1260 days is about 42 months, or three and a half years (time, times, and half a time). 42 months reflects the 40 odd years Isarel spent wandering from the Exodus up to entering the Promised Land.
 
+But the point is that we, as the Church, are fleeing in the wilderness. And Satan is coming after us but, because Jesus and His angels have won in heaven, the dragon *can't* harm us. He spews floods of water after us but, read it in v16, *"the earth helped the woman, [Christ the Lamb, Lord of the Earth helps, the earth helps] by opening its mouth and swallowing the river"*. Satan may be able to kill our bodies, he even may be able to lead us into temptation. But if we're in Christ, he is already defeated. Our murdered brothers and sisters will rise again. Any shame or pressure from the world for following Jesus that we may experience is only temporary - one day we'll be with Him in *true* glory and honour. That doesn't mean it's not hard, but *this* is what is true. Even when we do sin, because we do, even then Satan cannot accuse us. If we've truly confessed Jesus as our Lord, then He's on our side. How else we do we triumph over the dragon? Can you see it in v11? 
+
+*"They triumphed over [Satan]
+    by the blood of the Lamb
+    **and** by the word of their testimony;
+they did not love their lives so much
+    as to shrink from death."*
+
+As we testify to the world around us that Jesus is risen, and Lord of all, He is on our side. And He actually is. Satan loves to hiss lies to us, that when we sin God is standing there as a disappointed Father, and we need to earn His love back. But, really, our God stands there as the Conquerer, and He says "Get up! Get up! We've got a war to fight, there are lost souls to be brought into the kingdom, and I will give you wings of refuge, and the Serpent cannot harm you anymore, and I will take care of you". Our God takes care of us
