@@ -1,3 +1,5 @@
+\\ edit such that remove a lot of the quotations - especially if it's being read before. just describe and draw them into the images quicker.
+
 Good morning everyone! 
 
 Okay, so! Revelation! 
