@@ -8,7 +8,7 @@ We've seen how, as He died and rose from the dead, that dragon, Satan, was struc
 
 And we've seen how, now that he knows he has lost the war, he roams the earth attempting to persecute and destroy the Church, but God's protection is over His people in the wilderness.
 
-What is in heaven is what is actually real, that Christ reigns and we are safe with Him and Satan is defeated. And, now, in these final chapters, it's what we've been saying, now what is true in heaven *will* become true on earth. *This* is the great promise of Jesus in the book of Revelation. And so, as people now not yet there, as God's Church wandering in the wilderness, pursued by the Dragon, let's take what we've just read as a promise, as Biblical hope. Hope in what is inevitable, because these things are already true in heaven. We're not yet there but, if we hold on, if we hold to the testimony of Jesus, if we endure, if we resist Satan and temptation, we will be there. Remember that scroll with seven seals we heard about yesterday morning? The scroll containing all of God's promises? Well, today we're on the final seal; the promises are about to be fulfilled.
+What is in heaven is what is actually real, that Christ reigns and we are safe with Him and Satan is defeated. And, now, in these final chapters, it's what we've been saying, now what is true in heaven *will* become true on earth. *This* is the great promise of Jesus in the book of Revelation. And so, as people now not yet there, as God's Church wandering in the wilderness, pursued by the Dragon, let's take what we've just heard read as a promise, as Biblical hope. Hope in what is inevitable, because these things are already true in heaven. We're not yet there but, if we hold on, if we hold to the testimony of Jesus, if we endure, if we resist Satan and temptation, we will be there. Remember that scroll with seven seals we heard about yesterday morning? The scroll containing all of God's promises? Well, today we're on the final seal; the promises are about to be fulfilled.
 
 So, first, let's deal with the Dragon.
 
@@ -22,20 +22,20 @@ Satan will be released from his prison
 Satan will be released from his prison]
 and will go out to deceive the nations 
 in the four corners of the earth—Gog and Magog—
+
 and to gather them for **battle**. 
 In number they are like the sand on the seashore.
-
 They marched across the breadth of the earth 
 and surrounded the camp of God’s people, 
 the city He loves. "*
 
-So, at the End of Days, the Devil, and the people that he has led astray, will muster themselves to war against the people of God, one final battle. This is Avengers : Endgame. On one side, we have the Dragon, and all those who align themselves with him. Here they're referred to as 'Gog and Magog' which is just a reference to Ezekiel. But, simply, these are those that oppose Christ.
+So, at the End of Days, the Devil, and the people that he has led astray, will muster themselves to war against the people of God, one final battle. Guys, this is Avengers : Endgame. On one side, we have the Dragon, and all those who align themselves with him. Here they're referred to as 'Gog and Magog' which is just a reference to the book of Ezekiel. But, simply, these are  people that oppose Christ.
 
-And then, on the other side, we have the camp of the people of God. And just picture it, all the armies of the earth gathered together against one small camp in the wilderness. It doesn't look hopeful. But, of course, as readers of Revelation, we know that the way things appear on earth is not always the whole story. Because this pitiful camp is actually a city, it says in v9. We learnt yesterday that the ragged woman fleeing in the wilderness is actually a heavenly princess. The persecuted Church on earth is actually victorious in heaven. And this camp is a city. Though it may look weak, it is strong, it is enduring, and it is *loved*, it says here, by the God of all creation who sits on the throne. So what happens? We heard it read - God's fire of judgement comes from heaven, and the Dragon, and all of his followers, are consumed, and . And the camp, the city, of God's people stands firm.
+And then, on the other side, we have the camp of the people of God. And just picture it, all the armies of the earth gathered together against one small camp in the wilderness. It doesn't look hopeful. But, of course, as readers of Revelation, we know that the way things appear on earth is not the whole story. Because this pitiful camp is actually a city, it says in v9. We learnt yesterday that the ragged woman fleeing in the wilderness is actually a heavenly princess. The persecuted Church on earth is actually victorious in heaven. And this camp is a city. Though it may look weak, in reality it is strong, it is enduring, and it is *loved*, it says here, by the God of all creation who sits on the throne. So what happens? We heard it read - God's fire of judgement comes from heaven, and the Dragon, and all of his followers, are consumed. And the camp, the city, of God's people stands firm.
 
 What is true in heaven will become true on earth, and Satan is now defeated on earth. That scroll is opening, and it cannot be stopped. 
 
-If we cast, again, our minds back to yesterday morning, to the throne of God. And we had those twenty-four elders, and the four living creatures in 
+But we've just got to take some to think about Hell. We  ... ## add brief segue into this - just be clear, concise. dont tiptoe around just saying it etc.
 
 The world around us says to us that the reason why we exist, the point of living, the point of existing, it to make ourselves happy. It's to find some sort of self-assurance or self-satisfaction. Our society tells us, in one way or another, that we exist for ourselves, and what *we* decide is valuable. And if that's how we approach the world, if that's how we approach the idea of Hell, then of course it's going to sound terrible. 'Why does God have the right to punish *me*, or anyone else, for not obeying Him? My life is my own, and I owe Him nothing, and I never asked to be created.'
 
