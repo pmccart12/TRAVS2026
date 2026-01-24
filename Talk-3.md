@@ -59,27 +59,32 @@ Because after all the weariness of these thousand years fleeing and fighting Sat
 and He will dwell with them. 
 They will be His people, 
 and God Himself will be with them 
-and be their God. 
-‘He will wipe every tear from their eyes. 
+and be their God."*
+
+Why is it, that what is true in heaven will become true on earth? It is this : it is that they will become the same place. God's dwelling place will be with His people. We have the beginnings of this even now, as the Holy Spirit dwells in us. The light of the Spirit in the lampstands of the Church, if you can remember all the way back to Friday evening haha. But, at the End of Days, there will be an even fuller realisation of this. God will make His dwelling place, His home, among His people, unhindered, unrestrained. *This* is the moment when heaven and earth are now fully at one. Jesus' resurrection was the first taste of that, previously the only part of the earth that was consistent with its heavenly reality. But, on that Day, *everything* will be as it is in heaven. For the rest of us, *this* is the start of reality.
+
+And do you want to know what that heaven-and-earth reality will be like? ch21v4:
+
+*"‘He will wipe every tear from their eyes. 
 There will be no more death’ or mourning or crying or pain, 
 for the old order of things has passed away.”*
 
-[*"God Himself will be with them 
-and be their God. 
-‘[And] He will wipe every tear from their eyes. 
-... 
-for the old order of things has passed away.”*]
-
-The big question for the Christians then, as it is us for us now, is this : 'is it worth it?' Is it worth enduring? Submitting to the world, giving into temptation, compromising with society, these would be so much easier to do. 
+The big question for the Christians then, as it is us for us now, as it is for our sisters and brothers all over the world, is this : 'is it worth it?' Is it worth enduring? Submitting to the world, giving into the lie, compromising with society, these would be so much easier to do. 
 
 Following Jesus means being enlisted for war, it puts us in the Dragon's sights. We become one of his targets when we put our trust in Jesus. But the resounding answer to 'is it worth it?' is of course 'yes'.
 
-*"To the thirsty I will give water without cost [, Jesus says in v6,]
+*"To the thirsty I will give water without cost [, our Father says in v6,]
 from the spring of the water of life. 
 [And] those who are victorious will inherit all this, 
 and I will be their God 
 and they will be My children."*
 
-This is true now we can come to the Lamb for living water even now. But how wonderful, how utterly wonderful, that the peace and the life and the comfort and the fellowship that we receive from Him now is even only just a taste, of the rest and the vigour and the delight and the communion with Him that we shall have as, in the New Jerusalem, that City of God, we shall drink *deeply* of those crystal waters of life. There is a whole world to overcome. There are all the demonic forces of darkness and malice to conquer. But if we refuse to compromise our faith, if we refuse to forsake the Lamb that was slain for us, that Lamb that reigns from the centre of the universe, then we shall shall inherit all of these things. He has paid for it with His own blood, He can offer us water without cost. He's the only One who can. We can go to no one else.
+This is true now - we can come to the Lamb for living water even now. But how wonderful, how utterly wonderful, that the peace and the life and the comfort and the fellowship that we receive from Him now is even only just a taste, of the rest and the vigour and the delight and the communion with Him that we shall have as, in the New Jerusalem, that City of God, we shall drink *deeply* of those crystal waters of life. 
 
-As we wrap up this book of Revelation, I hope it has been helpful to you. I pray that, as we've looked at these images and symbols together, that they can become part of our worldview, part of how we think about reality and ourselves and history and those around us and the future. I hope they give you encouragement to keep going follow Jesus, to keep resisting the temptation to compromise with the world, to keep resisting Satan and fighting sin. And I just pray that we remember that these things are true. This is what is real. This is what real. Let me pray that our Father would help us with these things.
+There is a whole world to overcome. There are all the demonic forces of darkness and malice and the sea to conquer. But if we refuse to compromise our faith, if we refuse to forsake the Lamb that was slain for us, that Lamb that reigns from the centre of the universe, then we shall shall inherit all of these things. He has paid for it with His own blood, He can offer us water *without cost*. He's the only One who can. We can go to no one else. Jesus is coming soon, we're told. Let us look to that coming, and be ready, and be glad.
+
+As we wrap up this book of Revelation, 
+
+[insert thanks to the Travs for listening / engaging / thinking]
+
+I hope it has been helpful to you. I pray that, as we've looked at these images and symbols together, that they can become part of our worldview, part of how we think about reality and ourselves and history and those around us and the future. I hope they give you encouragement to keep going follow Jesus, to keep resisting the temptation to compromise with the world, to keep resisting Satan and fighting sin. And I just pray that we remember that these things are true. This is what is real. This is what real. Let me pray that our Father would help us with these things.
