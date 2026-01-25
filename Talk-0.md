@@ -16,11 +16,41 @@ Because, even more than all this, Satan, also, is *actively* seeking to deceive 
  
 The aim of this book, of this weekend, and I pray that the Lord will help us all in this, is that our worldviews would begin to be shaped more and more by what is actually true. And the way in which Revelation does this for us is kind of weird. It's not the sort of stuff we're used to reading, generally. 
  
-We're going to see, as we read this book, that we are being invited by Jesus to enter into His world of symbols and images, we're being invited to see the earth from His heavenly perspective. 
-
-Because Revelation *is* a letter, by the way, if I hadn't mentioned that already. Look at v11 :
+We're going to see, as we read this book, that we are being invited by Jesus to enter into His world of symbols and images. We're being invited to see the earth from His heavenly perspective. And so Jesus comes to the Apostle John in a vision. And John, at Jesus' command writes it down for us to know. Look at v11 :
 
 *"Write on a scroll what you see 
 and send it to the seven churches"*
 
-Sometimes people treat Revelation like a secret message to be decoded. There are all these symbolic pictures and numbers and characters, and because it all seems a bit obscure we just assume that it's something we have to work out. But, actually, it's not meant to be confusing. The original churches receiving this letter weren't sent it by Jesus to confuse them. John writes this letter to *comfort* them, and to challenge them. But not to confuse them. Because we don't know our Old Testaments as well as they did we're going to have to do a bit more work than they might've done in order to understand. But the purpose for us is the same. We have Revelation because we need help and encouragment to keep following Jesus. We have Revelation because our worldviews need to be challenged, and we need to live according to what is true, not just what society *says* is true.
+Sometimes people treat Revelation like a secret message to be decoded - but actually it's a *letter*. There are all these symbolic pictures and numbers and characters, and because it all seems a bit obscure we just assume that it's something we have to decipher and work out. But, actually, it's not meant to be confusing. The original churches receiving this letter weren't sent it by Jesus to confuse them. John writes this letter to *comfort* them, and to challenge them. But not to confuse them. Okay, because we don't know our Old Testaments as well as they did we're going to have to do a bit more work in order to understand. But the *purpose* for us is the same. We have Revelation because we need help and encouragment to keep following Jesus, even in the face of hardship. We have Revelation because our worldviews need to be challenged, and we need to live according to what is true, not just what society *says* is true.
+
+Once we get over the slightly strange imagery, actually this is just a letter full of love. Just hear it in v9 : 
+
+*"I, John, your brother 
+and [your] companion 
+in the suffering 
+and kingdom 
+and patient endurance 
+that are ours in Jesus"*
+
+We learn that John writes from a place of exile, on this island called Patmos, in Greece. He's been put there, he says *"because of the word of God and the testimony of Jesus"*. Because he did not deny his faith, he is suffering. And he's writing this letter to a variety of churches in various situations, some of which are also suffering persecution. 
+
+But, also, some of these churches are at risk in a different way - they're at risk of compromising with the world. There's the sort of 'hard' persecution that Christians can face - we have many sisters and brothers all over the world right now suffering under that. And there's a temptation with that 
+
+
+Because the whole point of getting our worldview into shape, is that we would know that, even when things seem weak and hopeless and grey and impossible and it would just make so much sense, and be so much easier to compromise with the world, that there is *another* perspective of reality, where actually weakness is strength and death is life, and persecution is victory and a cross is a throne. We want Revelation to give us images and pictures and ideas that supercede what we think we're seeing.
+
+I mean John says this here, right?
+
+*"I, John, your brother 
+and [your] companion 
+in the suffering"*
+
+John and the Christians are suffering.
+But what does he then say next?
+
+*"I, John, your brother
+and [your] companion 
+in the suffering
+and [the] kingdom]"*
+
+In Jesus' heavenly perspective, these things are not seperate. Suffering and kingdom seem like polar opposite things. But as we layer the heavenly perspective on top of the earthly one, we see that these points overlap. They're the same thing. We have the earthly perspective, we need the heavenly one. If we want to understand properly the earthly perspective, we need the fuller picture that the heavenly one gives.
