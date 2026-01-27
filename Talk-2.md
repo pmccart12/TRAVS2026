@@ -87,4 +87,8 @@ they did not love their lives so much
 
 As we testify to the world around us that Jesus is risen, and Lord of all, He is on our side. And He actually is. Satan loves to hiss lies to us, that when we sin God is standing there as a disappointed Father, and we need to earn His love back. But, really, our God stands there as the Conquerer, and He says "Get up! Get up! We've got a war to fight, there are lost souls to be brought into the kingdom, and I will give you wings of refuge, and the Serpent cannot harm you anymore, and I will take care of you". Our God takes care of us.
 
-The next time we maybe face hardship for following Jesus and His ways. The next time, even just in our minds, as we are assaulted by the dragon, as we're tempted, as we're accused -  know that he is already defeated, and Christ is already seated on the throne, and He has promised, He has *promised*, to take care of us. We can rest on Him for all the strength, all the comfort, we need. Because even as the Princess in the wilderness had only enough manna just for one day, she never went hungry, and neither will we.
+The next time we maybe face hardship for following Jesus and His ways. The next time, even just in our minds, as we are assaulted by the dragon, as we're tempted, as we're accused -  know that he is already defeated, and Christ is already seated on the throne.
+
+When you next speak to our friends about Jesus, and you just feel cringe and embarassed and silly - know , whatever others are thinking, the *truth*, the true worldview here, is that you are 
+
+ and He has promised, He has *promised*, to take care of us. We can rest on Him for all the strength, all the comfort, we need. Because even as the Princess in the wilderness had only enough manna just for one day, she never went hungry, and neither will we.
