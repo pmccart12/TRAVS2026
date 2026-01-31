@@ -1,35 +1,35 @@
 Good evening everybody!
 
-This weekend we wil be looking at the book of Revelation.
+Yeah so, so I'm Peter.
 
-And I really love this book for a number of reasons.
+And, as mentioned, I work as an engineer. Which is really fun. And lots of us will be in school or some sort of training or whatever it is. And each of us has our own world, right? We 
 
-And a 'revelation' is, well, sort of just what it says. It's a revealing. Or an 'unveiling'. And this, book, specifically, is an unveiling of *all reality*.
+Because we're looking at Revelation this weekend, and... has anyone here read Revelation before, even just bits of it? *Let them respond*
 
-##needs work
+Yeah so, if you've ever come across this book right at the end of the Bible before, then you'll know that it's full of crazy images and weird creatures and it *is* a little bit strange. But, what we're going to learn, is that these images, these weird creatures, they're actually real.
 
-Because, as we know, there is a world around us with all sorts of stuff going on, and the question is : how do we make sense of it? Wars and Greenland and AI and climate change and friends and school and family and work and struggles and joys and our own hearts, and our own minds and identities. Each day we wake up probably eat some food and go somewhere and speak to other humans and think about a thousand things, and walk down the street and get back into our beds and do it all again, on and on and on.
+Okay, there aren't necessarily seven-headed leopards and speaking sheep roaming about the earth, but what Jesus is doing in this book for us is this : He constructs for us a sort of symbolic world that we can enter into, and inhabit. A world full of visual language and deep Biblical ideas. And, actually, this world, we're going to see, is not an alien world, because it's *our* world.
 
-But behind our everyday lives, behind everything that happens on the earth around us and behind everything that happens to us, and behind everything we ourselves do - there is a *spiritual* reality. And it is this reality which we cannot see with our earthly eyes, and so it needs to be unveiled for us : revealed for us - those*cosmic* events, those *eternal* events that make up our day to day lives.
+Because a 'revelation' is, well, sort of just what it says. It's a revealing. Or another way to translate the word in v1 is as an 'unveiling', and it's an unveiling of *all reality*.
 
-##needs work
+Because behind great world events, wars and AI and climate change and pandemics, but also behind our lives, behind the smallest everyday things, and family and friends and struggles and joys. Behind everything that happens to us, and behind everything *we ourselves* do - there is a *spiritual* reality. There is a heavenly reality behind everything. And it is *this* reality which we cannot see with our earthly eyes, and so it needs to be unveiled for us : revealed for us - these*cosmic* events, these *eternal* events that make up our everyday lives.
 
-And I think we need this especially today because, you don't need me to tell you this, there are so many voices around us. With the internet and absolute *mess* of conflicting and contradicting values and ideas. And, you know, there are good things, true things in the various voices of our society, but they're just bits and pieces. What *we* need, if we want a way to live, what we need is the eagle-eye view, the grand narrative of heaven and earth. And it is by *this* view of the world, this 'worldview', this *true* worldview, ##needs work## that we can keep following Jesus until He comes back.
- 
-And, even more than all this, Satan, also, is *actively* seeking to deceive us. He is actively trying to *feed* and *influence* our worldviews away from what is true, away from what is good. 
- 
-The aim of this book, of this weekend, and I pray that the Lord will help us all in this, is that our worldviews would begin to be shaped more and more by what is actually true. 
+And Revelation is going to give us the images and the symbols in order to see and understand this cosmic, this heavenly, reality behind everything. 
 
-The way in which Revelation communicates truth to us is kind of weird. I mean, in the reading we just had there was Jesus but He had like burning eyes and swords coming out of His mouth and metal feet, and we sort of *do* get the vibe - the risen Jesus, Who once was dead but is now alive, is powerful, and glorious. But, if I'm honest, this isn't, generally, the sort of stuff that I'm used to reading.
+And we've already started - I mean, in the reading we just had there was Jesus -  but He had like burning eyes and swords coming out of His mouth and metal feet, and we sort of *do* get the vibe - this is the risen Lord Jesus, Who once was dead but is now alive, and He is powerful, and He is glorious. But if I'm honest, this isn't, generally, the sort of stuff that I'm used to reading. It's still a little bit strange, and that can be confusing and offputting.
 
-But we're going to see, as we read this book, that we are being invited by Jesus to enter into a world of images, a lot of them based on the Old Testament, but we're being invited into a world symbols and images. And what it is is that we're being invited to see the earth from His heavenly perspective. We're being invited to look at the world from Jesus' heavenly perspective. And so, as we read {red}, Jesus comes to the Apostle John in a vision. And he writes it down for us. Look at v11 :
+But I suppose that the hope is, this weekend, that all of us *will* begin to get used to these images. That we'll accept Jesus' invitation to step further into this symbolic world that is actually our world. We are, by no means, going to be able to read the whole book; we've only really got a couple days. But I suppose that my prayer for all of us is that we'll all be able to go home after this and pick up our Bibles and turn right to the back, to Revelation, and not just think 'this is weird and confusing, I'm just going to read something else'. Because Jesus thinks it's *so* important that we understand this book.
 
-*"Write on a scroll what you see [, symbols, images,]
-and send it to the seven churches"*
+He sends this *letter* for a reason. Did you see that, in v11?
 
-Sometimes people treat Revelation like a secret message to be decoded - but actually, first and foremost, it is a *letter*. Send it to the seven churches! There are all these symbolic pictures and numbers and characters, and because it all seems a bit obscure we just assume that it's something we have to decipher and work out or, more likely, we just don't bother reading it at all. 
+*"Write on a scroll what you see [, figures, images,]
+and **send** it to the seven churches"*
 
-But, like, it's obviously not *meant* to be confusing. The original churches receiving this letter weren't sent it by Jesus justs to confuse them. John writes it to *comfort* them, and to *challenge* them. But not to confuse them. And, you know, we don't know our Old Testaments as well as they did, and so we're going to have to do a bit more work in order to understand. But the *purpose* for us is the same. *We*, right now, have been given Revelation because we need help and encouragment to keep following Jesus, even in the face of hardship. We have Revelation because our worldviews need to be challenged, and we need to live according to what is true, not just what society says is true.
+Sometimes people treat Revelation like a secret puzzle to be decoded, you know, let's work out if Donald Trump is the Antichrist or if we've reached the fourth stage of the End Times or whatever. And I'm not saying these aren't important questions, but before we get into the details, we have to remember that, first and foremost, it is a *letter*. Send it to the seven churches!
+
+Because, like, obviously the original churches receiving this letter weren't sent it by Jesus just to confuse them. John writes it to *comfort* them, and to *challenge* them. But not to confuse them. 
+
+A lot of the images in this book are based on the Old Testament, and we obviously don't know our Old Testaments as well as they did, and so we're going to have to do a bit more work in order to understand. But the *purpose* for us is just the same. *We*, right now, have been given Revelation because *we* need help and we need encouragment to keep following Jesus, even in the face of hardship. We've been given Revelation because our worldviews need to be challenged, and we need to live according to what is true, not just what society says is true. The temptation to compromise with the world is real. But when we know what is true, when we have the heavenly perspective, it becomes a lot easier to fight against the lies of the world, against the lies of Satan.
 
 And once we get over the slightly strange imagery, actually this is a letter that is just *full* of love. Just hear it in v9 : 
 
@@ -40,11 +40,11 @@ and kingdom
 and patient endurance 
 that are ours in Jesus"*
 
-We learn that John writes from a place of exile, on this island called Patmos, in Greece. He's been put there, he says in v9 still *"because of the word of God and the testimony of Jesus"*. Because he held firm to his faith, he is now suffering. And he's writing this letter to a variety of churches in various situations, some of which are also suffering persecution. Some of which are at risk of compromising with the world, we'll think about that a bit more. But, wherever they're at, Jesus wants all of them, and we need this too, in His love He just wants all of them know what is *true*.  In His love He wants us to know what is true.
+We learn that John writes from a place of exile, he's on this island called Patmos, in Greece. He's been put there, he says in v9 still *"because of the word of God and the testimony of Jesus"*. Because he held firm to his faith, he is now suffering. And he's writing this letter to a variety of churches in various situations, some of which are also suffering persecution. Some of which are at risk of compromising with the world. But, wherever they're at, Jesus sends John this vision because He wants all of these churches, and we need this too, in His love He just wants all of them know what is *true*.  In His love He wants us to know what is true.
 
 Because the whole point of getting our worldview into shape, in focussing it on the truth, however weird it might look, is that we would know that, even when things seem weak and hopeless and grey and dull and impossible and it would just make so much sense, and be so much easier to compromise with the world, to go our own way, and give up the testimony of Jesus, that there is actually *another* perspective of reality, where weakness is strength and death is life, and persecution is victory and a cross is a throne. 
 
-Jesus wants to give us images and pictures and ideas that supercede what we think we're seeing.
+Jesus wants to give us images and pictures and ideas that supercede what we think we're seeing with our eyes.
 
 I mean John says this here, right?
 
@@ -60,18 +60,15 @@ and [your] companion
 in the suffering
 **and [the] kingdom**"*
 
-In Jesus' heavenly perspective, these things are not seperate. We see suffering; He sees a kingdom.
+In Jesus' heavenly perspective, these things are not seperate. We see suffering; He sees a kingdom. And as we begin to layer His heavenly perspective on top of our earthly one, we're going to see that these points overlap. They're not mutually exclusive.
 
-And as we layer the heavenly perspective on top of the earthly one, we're going to see that these points overlap. They're the same thing.
+We read out this whole passage, and obviously there's already a lot going on. It's late, I've been at work all week - I won't try and unpack it all here. Please, and this goes for the whole weekend by the way, but please, come chat to me afterwards if you want to. But I'll just make this last point.
 
+Sometimes people make out that Revelation is *just* about the End Times, about the days just before Jesus returns. But, actually, what we miss, is that we're *in* the End Times now. Sometimes people try to construct calendars and timelines about which events happen when and in which order as they unfold in this book. But Revelation is more of a spiral than a straight line. It presents the same events again and again, just in different ways and with slightly different images. But if you want a linear timeline of history, we have Jesus' resurrection, the 'End Times', Jesus' return. And because we're in the End Times now, this means that we read Revelation not as a sort of birdspotters guide, trying to figure out exactly which 
 
-Right now, we have the earthly perspective, we need the heavenly one. If we want to understand properly what's going on around us, we need the fuller picture that the heavenly vision gives. This why we have the book of Revelation.
-
-We read out this whole passage, and obviously there's already a lot going on. It's late, I've been at work all week - I won't try and unpack it all here. Please, please, come chat to me afterwards if you want to. But I'll just make this last point.
-
-Sometimes people make out that Revelation is a sort of weather forecast - look at the signs now, are there clouds?, and figure out things that will happen to us later, it's gonna rain. But just look at v19 with me :
+Just look at v19 :
 
 *"Write, therefore, what you have seen, 
 what is now and what will take place later."*
 
-...
+Revelation is teaching us, first, about *what is **now***. About me and you and the whole world *now*. About the reality of everything in the time between Jesus' resurrection and Jesus' return. And then also, yes, about things that will *"take place later"*.
