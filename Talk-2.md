@@ -92,3 +92,9 @@ The next time we maybe face hardship for following Jesus and His ways. The next 
 When you next speak to our friends about Jesus, and you just feel cringe and embarassed and silly - know , whatever others are thinking, the *truth*, the true worldview here, is that you are 
 
  and He has promised, He has *promised*, to take care of us. We can rest on Him for all the strength, all the comfort, we need. Because even as the Princess in the wilderness had only enough manna just for one day, she never went hungry, and neither will we.
+ 
+ 
+ 
+ \\ Maybe we get disheartened about the sacrifices that we have to make as Christians. 
+
+Feeling weird when we tell our friends we go to church. Or we force ourselves to show restraint and self-control, when everyone else just does what they want with gossip and alcohol and porn and TikTok. It's a sacrifice, in a sense, to restrain ourselves. And the Christian life always involves sacrifice of some kind. We have many sisters and brothers all over the world right now who are consciously preparing to die because they know that that's where following Jesus will lead them. But He wants them to know, and us to know, this - that at the centre of everything there is a God who sacrificed Himself on a cross for His people, but it lead to glory, and to honour, and to life.
