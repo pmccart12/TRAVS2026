@@ -52,9 +52,9 @@ he pursued the woman who had given birth to the male child.
 Satan couldn't destroy Christ, so now he will try and destroy Christ's people. This slithering crawling serpent now sets his seven sets of eyes on pursuing and overtaking and consuming the Church. And he bellows torrents and tsunamis of dark water the he might drown us with all the demonic force that he can muster.
 
 And that is terrifying. And for so many Christians around the world this is so real. 
-We have sisters and brothers in Nigeria right now, who are being macheted to death by Islamic militants because of their faith. Their villages are being flattened, and their crops are being burned to the ground. And perhaps it just looks like the dragon is as powerful than he ever was.
+We have sisters and brothers in Nigeria right now, who are being macheted to death because of their faith. Their villages are being flattened, and their crops are being burned to the ground. And perhaps it just looks like the dragon is as powerful as he ever was.
 
-We, in Cambridge, aren't at risk, really, of physical persecution, nothing even close. But maybe for us it looks more like that temptation to compromise with the world around us. To give in as those waters of sin and self-gratification tug and pull at our feet. And then, when we do listen to the lies of our society, the serpent turns back around and accuses us. And the guilt is crushing. And it seems like he has just as much power over us as he ever did.
+We, in Cambridge, aren't at risk, really, of physical persecution, nothing even close. But maybe for us it looks more like that temptation to compromise with the world around us. To give in as those waters of sin and self-gratification tug and pull at our feet. And then, when we do listen to the lies of our society, the serpent turns back around and accuses us. And the guilt is crushing. And has anything changed?
 
 But that is not the heavenly perspective. Jesus wants us to know that that is *not* what is true. 
 
@@ -81,7 +81,7 @@ If we've truly confessed Jesus as our Lord, then victory is ours. Did you see th
 they did not love their lives so much
     as to shrink from death."*
 
-As we testify to our friends, our family, to the whole world around us, that Jesus is risen, that He is Lord of all on the throne, Satan is *crushed*. And our God takes care of us. And even as we die to ourselves, we are triumphant. But we've just got to hold on. We've got to hold on and keep going following Jesus. It can be so wearying sometimes, and we don't even have Islamic militants trying to kill us. But when the dragon hisses his lies at us, that it's not worth persevering in Christ. Just ignore him, and remind yourself of the heavenly perspective. Because our Risen King gives us wings of refuge, and we are secure in heaven, and we can rest on Him for all the strength, all the comfort, we need. 
+As we testify to our friends, our family, to the whole world around us, that Jesus is risen, that He is Lord of all on the throne, Satan is *crushed*. And our God takes care of us. And even as we die to ourselves, we are triumphant. But we've just got to hold on. We've got to hold on and keep going following Jesus. It can be so wearying sometimes. But when the dragon hisses his lies at us, that it's not worth persevering in Christ. Just ignore him, and remind yourself of the heavenly perspective. Because our Risen King gives us wings of refuge, and we are secure in heaven, and we can rest on Him for all the strength, all the comfort, we need. 
 
 *"Now have come the salvation and the power
     and the kingdom of our God,
