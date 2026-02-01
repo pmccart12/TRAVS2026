@@ -117,7 +117,7 @@ Jesus has risen from the dead, He has opened the scroll. He now reigns in heaven
 
 We were created to join in with that worship. To worship Him with all of our lives, in everything we do, in every word we speak, in every thought we think.
 
-But, unbelievably, we are also invited to join Him. Not just on a throne next to Him, that's not what He says.
+But unbelievably, we are also invited to join Him. Not just on a throne next to Him, that's not what He says.
 
 *"I will give the right to sit with Me **on My throne**"*.
 
