@@ -38,7 +38,7 @@ But *now*, now has come the salvation... and the power... and the kingdom of our
 
 And so Michael and his angels **strike** him down, and he falls, twisting and screaming and cursing - but in heaven he is defeated, and there is nothing that he can do. And what was lost to the serpernt in the Garden of Eden is now, at Jesus's resurrection, it is *taken back*.
 
-And that's the heavenly perspective. That's what is true. And Jesus really wants us to know it, end of v12 :
+And that's the heavenly perspective. Satan is defeated. But it's not quite yet the whole picture, end of v12 :
 
 *"[Because the dragon, now,] is filled with fury,
  because he knows that his time is short.
