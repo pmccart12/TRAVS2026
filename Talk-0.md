@@ -20,7 +20,7 @@ And we've already started - I mean, in the reading we just had there was Jesus -
 
 But if we're honest, this isn't, generally, the sort of stuff that we're used to reading. It's still a little bit strange. I know I certainly find it tricky.
 
-But what Jesus is doing for us is this : He is inviting us to enter into His heavenly perspective. Because Jesus is like a spiritual mantis shrimp. There are things He can see, from heaven, that we can't. But the great thing is that He's going to show us. In this book of Revelation, He is going to teach us to see the world through His eyes.
+But what Jesus is doing for us is this : He is inviting us to enter into His heavenly perspective. Because Jesus is like a spiritual mantis shrimp. There are things He can see, from heaven, that we can't. But it's okay, because He's going to show us. In this book of Revelation, He is going to teach us to see the world through His eyes.
 
 We're not going to be able to read the whole book; we've only really got a couple days. But I suppose that my prayer for all of us is that we'll *let* Him teach us. Because Jesus thinks that it's *so* important that we understand this letter.
 
