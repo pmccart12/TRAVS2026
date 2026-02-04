@@ -80,7 +80,7 @@ They will be His people,
 and God Himself will be with them 
 and be their God."*
 
-And this is it. This is the moment when the heavenly reality and the earthly reality become one. Remember we were saying before it was a bit lke how we want to overlay the heavenly perspective over the earthly one? Well now they collapse into one another, and God's dwelling place will be with His people, unhindered, unrestained.
+And this is it. This is the moment when the heavenly reality and the earthly reality become one. Remember we were saying before it was a bit like how we want to overlay the heavenly perspective over the earthly one? Well now they collapse into one another, and God's dwelling place will be with His people, unhindered, unrestained.
 
 And what is it going to be like? ch21v4:
 

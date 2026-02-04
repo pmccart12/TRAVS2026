@@ -1,6 +1,6 @@
 Good evening everybody!
 
-Have you guys heard of the mantis shrimp? This is what they look like [show slide]. And they're very pretty creatures but, apparently, maybe you already know this, they can see, like, millions of more colours than we can. And, as I was deep in the Wikipedia rabbit hole, I was just thinking to myself, 'what if, one moment, I just became a mantis shrimp?'. Would the world around me just transform into all sorts of different hues and shades I'd never known existed? It would be kind of shocking, but also probably really beautiful. And that's kind of what the book of Revelation is doing.
+Have you guys ever heard of the mantis shrimp? This is what they look like [show slide]. And they're very pretty creatures but, apparently, maybe you already know this, they can see, like, millions of more colours than we can. And, as I was deep in the Wikipedia rabbit hole, I was just thinking to myself, 'what if, one moment, I just became a mantis shrimp?'. Would the world around me just transform into all sorts of different hues and shades I'd never known existed? It would be kind of shocking, but also probably really beautiful. But that's kind of what the book of Revelation is doing.
 
 Because a 'revelation' is, well, sort of just what it says. It's a revealing. An unveiling.
 
@@ -57,6 +57,6 @@ in the suffering
 
 In Jesus' heavenly perspective, behind the suffering of these Christians... there is a kingdom, and it is glorious. But we're going to think a lot more about that tomorrow.
 
-And so, just as we close. Just to take with us to think about this evening - the *main* aim, as we read this letter, the main aim, is for us to start to to see reality how Jesus sees reality. We want to see reality how Jesus sees reality. He's going to help, He's going to unveil it for us in this book, as He shows us what is actually true. We're going to see that the Christian life is *exciting*. It's vivid and bold. And, following Him is rich and beautiful. So this weekend, as you eat and and talk and think and play games and chat with one another, just try and immerse yourself in these images in Revelation. It's reality through Jesus' eyes. And He wants us to see.
+And so, just as we close. Just to take with us to think about this evening - the *main* aim, as we read this letter, the main aim, is for us to start to to see reality how Jesus sees reality. We want to see reality how Jesus sees reality. He's going to help, He's going to unveil it for us in this book, as He shows us what is actually true. We're going to see that the Christian life is *exciting*. It's vivid and bold. And, following Him is colourful and rich. So this weekend, as you eat and and talk and think and play games and chat with one another, just try and immerse yourself in these images in Revelation. It's reality through Jesus' eyes. And He wants us to see.
 
 Let me pray.

@@ -1,12 +1,11 @@
 Good morning everyone!
 
-Okay, so yesterday we were talking about the mantis shrimp. [show slide] Very cool animal.
-But they're kind of alien-like aren't they?
-And I don't know if you've ever wondered, if aliens came to earth, who would represent us? 
-When the UFO lands, it's always the first thing they say, isn't it? - "Take me to your leader!". 
-Who would we send? Keir Starmer? Donald Trump? Xi Jinping? Or maybe Elon Musk; he likes space I think? None of them sound like great options do they.
+How well do you think you would be able to draw the outline of the UK from memory?
+I reckon I'd do alright! I don't know about you, I don't if we have any budding geographers in the room.
+But a newspaper asked over a hundred British people to try and do this, and these were some of the results. Have a look at this one. [show four-five examples].
+Come on, that is pretty bad! You'd think, you spend your whole life living in the UK, and you think *that's* what it looks like! But actually, we're going to see that this is sort of what we do. Because the entire universe has a shape, and we're not always great at remembering it.
 
-
+But again, it's alright, because Jesus, here in Revelation, is going to show us.
 
 *"At once I was in the Spirit, and there before me was a throne in heaven with someone sitting on it. And the One who sat there had the appearance of jasper and ruby. A rainbow that shone like an emerald encircled the throne."*
 
@@ -18,70 +17,66 @@ Remember we were saying that numbers are symbolic in Revelation. And a bit later
 
 *"From the throne came flashes of lightning, rumblings and peals of thunder. [It's like Mount Sinai.] In front of the throne, seven lamps were blazing. These are the Seven Spirits of God. [the fulness of the Holy Spirit.] Also in front of the throne there was what looked like a sea of glass, clear as crystal."*
 
-And this sea sounds kind of nice right, it's "clear as crystal" - it lovely, a trip to the Norfolk coast, or the Bahamas. But actually, in the Bible, in the Old Testament especially, the sea was not a good thing. Before God made the world, what was there? It says in Genesis 1 that the Spirit of God was hovering over something- does anyone know what it was off the top of their heads? *Let them respond.*
+And this sea sounds kind of nice right, it's "clear as crystal" - it lovely, a trip to the Norfolk coast, or the Bahamas. But actually, in the Bible, and in the Old Testament especially, the sea was not a good thing. Before God made the world, what was there? It says in Genesis 1 that the Spirit of God was hovering over something- does anyone know what it was off the top of their heads? *Let them respond.*
 
-Yeah! It was the waters, these sort of 'chaos waters'. And out of them God brought order and light, but they themselves represented, well, disorder, darkness. Or think about the Red Sea, or Noah's flood, or Jonah and the whale, I'm sure there are more examples. Generally, the idea is that sea, the ocean, symboolically stands against God and His people. This is why, when Jesus calms the storm, it's more than just Him demonstrating His power over nature - He's demonstrating His power, as well, over evil and chaos and Satan.
+Yeah! It was the waters, these sort of 'chaos waters'. And out of them God brought order and light, but the water represented, well, disorder, darkness. Or think about the Red Sea, or Noah's flood, or Jonah and the whale, I'm sure there are more examples. Generally, the idea is that sea, the ocean, symboolically stands against God and His people. This is why, when Jesus calms the storm, it's more than just Him demonstrating His power over nature - He's demonstrating His power, as well, over evil and chaos and Satan.
 
 And obviously the sea, here, is calm - it doesn't seem very scary. But I think that that's actually the point. We're being given a heavenly perspective. Perhaps down on earth the sea seems to be raging and stirring - Satan is writhing and terrorising. But, from heaven, the sea is tame and, crucially, under control. The seething oceans of everything that is corrupt... are under God's control - the sea is calm. And the God on the throne is Lord over all things, even that which is in complete opposition to Him. He reigns from the throne.
 
-So we're building up this image, right. The throne of the beautful God, surrounded by the people of God, reigning with Him. And the Holy Spirit of God fills the heavens, and also there's this sea.
+And now, it says, in v6, around the throne, there are also these 'living creatures'. And I'd love to talk more about them, but sadly there's no time. Because we've looked at lots of details, but I think we've just got to step back for a moment. 
 
-And now, it says, in v6, around the throne, there are also these 'living creatures'. And there are four of them, each with a different animal head, and they've got loads of eyes covering them, and a bunch of wings. Obviously they're kind of freaky. But again, we're trying to immerse ourselves in Jesus' visual language, even when it's a bit weird. They've got wings and eyes, which is how angels are often described in the Old Testament, spiritual servants of God. And then their heads - notice they cover every major animal group - predators and birds and field animals and, of course, people as well. So these angels represent the fulness of God's creatures. And so we've got the angels and the people of God and all His creation encircling Him, worshipping Him. Look at 4v8 :
+We've got all these different characters up in heaven, elders and living creatures and whatnot, but did you notice the shape they're in? 4v3, the rainbow *encircles* the throne. v4, the elders are *surrounding* the throne, end of v6, the living creatures were *in the centre, around the throne*. Through Jesus' eyes, the entire universe... is organised into circles. And, at the centre of those circles, is that throne. The shape of the universe is a circle. And now you'd think that a circle is a lot easier to remember than the complicated outline of the UK, but we forget it all too often.
 
-*"Day and night they never stop saying: “‘Holy, holy, holy is the Lord God Almighty,’ Who was, and is, and is to come...”*
+But what does it even mean that we're all organised into circles? Just look at 4v8 :
+
+*"Day and night they [, the living creatures,] never stop saying: “‘Holy, holy, holy is the Lord God Almighty,’ Who was, and is, and is to come...”*
 
 *"[v10]...They lay their crowns before the throne and say: “You are worthy, our Lord and God, to receive glory and honour and power, for You created all things, and by Your will they were created and have their being.”"*
 
-Because God is the Creator of all things, He is worthy of our praise. All creation encircles Him to worship.
+Because God is the Creator of all things, He is worthy of our praise. And so all creation encircles Him to worship.
 
-Society will tell us that, you know, we come up with our own purpose. We get to decide why we think we exist, and that's personal to me, it's my own business. But actually I'm wrong, because everything, everything exists to worship and to adore the beautiful God who created all things. And so, if we're not joining in with that worship, we're missing the point of like all reality. And we're missing out on the thing we literally exist for.
+Society will tell us that, you know, we come up with our own purpose. We get to decide why we think we exist, and that's personal to me, it's my own business. But actually that's wrong, because everything, **everything** exists to worship and to **adore** the beautiful God who created all things. All creation is a circle, because all creation has been designed to worship. And so, if we're not joining in with that worship, we're missing the point of like all reality. And we're missing out on the thing we literally exist for. It's easy to forget the shape of the universe.
 
-We've got to join to in with that worship, and we will be more ourselves than we've ever been.
+But there's something else we've not seen yet. There's a bit of commotion, there's something going on in the middle of the universe. Look at 5v1 with me:
 
-5v1:
+*"Then I saw in the right hand of Him [, the Father,] who sat on the throne [at the centre of the universe] a scroll with writing on both sides and sealed with seven seals. "*
 
-*"Then I saw in the right hand of Him who sat on the throne [, the Father,] a scroll with writing on both sides and sealed with seven seals. "*
-
-// flow Okay, so now we've got this scroll. And again, we need our Old Testaments handy, last chapter of Daniel, chapter 12, don't worry about turning there :
-
-God has just given Daniel a vision of the End Times, and then He says to him :
+Okay, so now we've got this scroll. And we're going to need our Old Testaments handy, because this scroll is from the book of Daniel. In chapter 12, right at the end, God has just given Daniel a vision of the future, and then He says to him :
 
 *"But you, Daniel, roll up and seal the words of the scroll until the time of the end....As for you, go your way till the end. You will rest, and then at the end of the days you will rise to receive your allotted inheritance."*
 
-Fullstop. And that's how the book of Daniel ends, with this hope of an inheritance, the hope of eternal life with God, but a command to wait. And so this sealed scroll, in a word, contains all that hope. The hope of all the promises of God, to judge evil, and to bless and bring life to His people. All the world's hope is contained within that scroll.
+Fullstop. And that's how the book of Daniel ends, with this hope of an inheritance, the hope of eternal life with God, but also a command to wait. And so this sealed scroll, in a word, contains all that hope.
 
-And so a mighty angel calls out 'Who is worthy to break the seven seals and open the scroll? Who is able to bring about the promises of God, life for His people?'. But nobody could be found. And so John weeps and weeps. Because the question is - will those promisies of God ever come?
+And so a mighty angel calls out, look at 5v2 with me' *"Who is worthy to break the [seven] seals and open the scroll?"*  Who is able to bring about the promises of God, life for His people?. But nobody could be found. And so John weeps and weeps. Because the question is - will those promisies of God ever come? But follow along with me from v5 :
 
-*"[But] then one of the elders said to me, “Do not weep! See, the Lion of the tribe of Judah, the Root of David, [Jesus, He] has triumphed. He is able to open the scroll and its seven seals.”*
+*"[But] then one of the elders said to me, “Do not weep! See, the Lion of the tribe of Judah, the Root of David, [Jesus, **He**] has triumphed. **He** is able to open the scroll and its seven seals.”*
 
-*Then I saw[...] a Lamb, looking as if it had been slain, standing at the centre of the throne, encircled by the four living creatures and the [24] elders. The Lamb had seven horns [symbolising strength] and seven eyes, which are the Seven Spirits of God [, the Holy Spirit,] sent out into all the earth.*
+*Then I saw[...] a Lamb, looking as if it had been slain, standing at the centre of the throne, encircled by the four living creatures and the [24] elders....[now v7]
 
-*He went and took the scroll from the right hand of Him who sat on the throne [, His Father]. And when He had taken it, the four living creatures and the twenty-four elders fell down before the Lamb...And [, it says, v9,] they sang a new song"*
+*[And] He went and took the scroll from the right hand of Him who sat on the throne [, His Father]. And when He had taken it, the four living creatures and the twenty-four elders fell down before the Lamb...And [, it says, v9,] they sang a new song"*
 
 A new song. Something new is happening in heaven, something that has not happened before.
 
 *"And they sang a new song, saying:
 
 “You are worthy to take the scroll and to open its seals, 
-[You are worthy to bring about the promises of God] 
-because You were slain, and with Your blood You purchased for God 
+[**You** are worthy to bring about the promises of God] 
+**because You were slain**, and with Your blood You purchased for God 
 persons from every tribe and language and people and nation."*
 
-Because You were slain. Because God Himself came down, and died on a cross, and rose to resurrection life, and rose to heaven, there is a new age. And we're in that age now. If we live after the cross, after the resurrection, then all the promises of God that Daniel and Israel and the whole world were longing for in that scroll - all the hopes that humanity has ever had since we were cast out of the Garden of Eden, hope for new life - well, the Lamb is worthy to open the scroll, the seals are being broken, because at the cross, and at the resurrection something new has begun.
+Because You were slain. Because God Himself came down, and died on a cross, and rose to resurrection life, and rose to His throne in heaven, there is a new age. And all the promises of God that Daniel and Israel and the whole world were longing for in that scroll - all the hopes that humanity has ever had since we were cast out of the Garden of Eden, hope for new life - well, the Lamb is worthy to open the scroll, the seals are being broken, because at the cross, and at the resurrection something new has begun.
 
-Daniel was looking toward, longing for, the 'End Times'. But, according to Revelation, they've already begun. We're in the End Times now, because Jesus is already risen, and He reigns from heaven, on that throne at the centre of the universe. Our lives get so filled up with so many things. Maybe it can feel like the centre of the universe is, I don't know, exam grades, or friendships, climate change or AI or whatever. But what is the centre? What is everything else in all reality orbiting around?
+I think we actually do know what the shape of the universe is. I think that everyone in our society *does* understand that it's a circle. But it's a circle centred on the wrong thing. Our lives get so filled up with so many things. Maybe it can feel like the centre of the universe is, I don't know, exam grades, or friendships, climate change or simply just myself, and whatever I want. But what is the centre? What is everything else in all reality orbiting around?
 
-5v13, we see that every creature in the world, the four living creatures, the 24 elders, we're all standing around, centred on one thing - on the throne of the Lamb. On the God who died on a cross.
+We're all standing around, centred on one thing - on the throne of the Lamb. On the God who died on a cross.
 
 And there's so much that could be said about this. 
 
-What does the kingdom of God actually look like? What does victory for the follower of Jesus mean? In heaven, we see here, it looks like thrones and crowns and glory - but on earth, we know, it will probably look different. And it probably won't look like power and influence. And it may very well end up looking like a Lamb, hanging on a cross.
+What does the kingdom of God actually look like? What does victory for the follower of Jesus mean? In heaven, we see here, it looks like thrones and crowns and glory - but on earth, we know, it will probably look different. And it probably won't look like power and influence and popularity. And it may very well end up looking like a Lamb, hanging on a cross.
 
 But we're running out of time.
 
-So, to wrap up, the heavenly perspective.
-
-Jesus has risen from the dead, He has opened the scroll. He now reigns in heaven, and all creation gathers round to worship Him, and to worship His Father.
+So, to wrap up, Revelation has shown us an eagle eye view of the world through His eyes. And it looks like a circle, centred on a Lamb, risen from the dead. And He now reigns in heaven, and all creation gathers round to worship Him, and to worship His Father.
 
 We were created to join in with that worship. To worship Him with all of our lives, in everything we do, in every word we speak, in every thought we think.
 
