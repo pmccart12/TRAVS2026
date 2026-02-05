@@ -1,9 +1,9 @@
 Good evening everyone!
 
 Do you guys have a favourite story? Maybe like a book or a film?
-I mean, there are lots of great stories, but I think that the best ones are the ones that you just get completely immersed in. They manage, somehow, just to *consume* you. When it's just impossible to take your eyes off the screen, or you've just got to keep reading faster and faster because you want to know what happens next. It's a wonderful feeling - it's a wonderful feeling, to get sucked into a story.
+I mean, there are lots of great stories, but what they all have in common, is that there's always a struggle. The best stories aren't the ones where everything is perfect all of the time, right? It's always that there is some problem or obstacle to overcome. Every story has a struggle.
 
-And we're dashing through the story of Revelation. We've seen the Lamb on the throne, and now we've skipped a bunch of chapters, and we've come to chapter 12.
+And we're dashing through the story of Revelation. We've seen the Lamb on the throne, and now we've come to chapter 12.
 
 We've already had it read, and we heard, in this new section of the letter, about some new heavenly images. Here they're referred to as 'signs', or symbols.
 
@@ -52,9 +52,9 @@ he pursued the woman who had given birth to the male child.
 [And] from his mouth the serpent spewed water like a river, [it's that sea again isn't it, those waters of chaos,]
 [the serpent spewed water like a river, ] to overtake the woman and sweep her away with the torrent."*
 
-The story's not finished. Satan couldn't destroy Christ, so now he's going to try and destroy Christ's people. This slithering crawling serpent now sets his seven sets of eyes on pursuing and overtaking and tearing apart the Church. And he bellows torrents and tsunamis of dark water the he might drown us with all the demonic force that he can muster.
+The story's not finished. Satan couldn't destroy Christ, so now he's going to try and destroy Christ's people. This slithering crawling serpent now sets his seven sets of eyes on pursuing and overtaking and tearing apart the Church. Because every good story has a struggle. And the dragon now bellows torrents and tsunamis of dark water the he might drown us with all the demonic force that he can muster. 
 
-And that is terrifying. And for so many Christians around the world this is so real. 
+And it's terrifying. And for so many Christians around the world this is so real. 
 We have sisters and brothers in Nigeria right now, who are being macheted to death because of their faith. Their villages are being flattened, and their crops are being burned to the ground. And perhaps it just looks like the dragon is as powerful as he ever was.
 
 We, in Cambridge, aren't at risk, really, of physical persecution, nothing even close. But maybe for us it looks more like that temptation to go along with the world around us. To give in as those waters of sin and self-gratification tug and pull at our feet. And then, when we do listen to the lies of our society, the serpent turns back around and accuses us. And the guilt is crushing. And has anything really changed?
@@ -69,7 +69,7 @@ where she would be taken care of..."*
 
 Ultimately, we are taken care of. Our brothers and sisters in Nigeria are taken care of. No matter how much Satan flails and shrieks, his time is short. His final destruction is coming - we'll see that tomorrow.
 
-He may be able to kill our bodies, he may try to crush us with the guilt of our sin. But if we're in Christ, he is already defeated. That doesn't mean it's not hard now, but *this* is what is true.
+He may be able to kill our bodies, he may try to crush us with the guilt of our sin. Every story has a struggle. But if we're in Christ, he is already defeated. That doesn't mean it's not hard now, but *this* is what is true.
 If we've truly confessed Jesus as our Lord, then victory is ours. 
 
 Did you see that in v11? Look at it :
