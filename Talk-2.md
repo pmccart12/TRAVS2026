@@ -1,13 +1,13 @@
 Good evening everyone!
 
-Do you guys have a favourite story? Maybe like a book or a film?
-I mean, there are lots of great stories, but what they all have in common, is that there's always a struggle. The best stories aren't the ones where everything is perfect all of the time, right? It's always that there is some problem or obstacle to overcome. Every story has a struggle.
+Do you guys have a favourite story? Maybe like a book or a film? Just think about that for a moment.
+I mean, there are lots of great stories, but one of the things they all have in common is that there's always a *struggle*. The best stories aren't the ones where everything is perfect all of the time, right? It's always that there is some problem or obstacle to overcome and, eventually, it is overcome, and the heroes find peace and rest. Every story has a struggle. There's striving. But just hold onto that for now...
 
-And we're dashing through the story of Revelation. We've seen the Lamb on the throne, and now we've come to chapter 12.
+Bcause we're dashing through the story of Revelation. We've seen the Lamb on the throne, and now we've come to chapter 12, which starts a new section in the letter.
 
-We've already had it read, and we heard, in this new section of the letter, about some new heavenly images. Here they're referred to as 'signs', or symbols.
+And, in it, Jesus gives us some new heavenly images. Here they're referred to as 'signs', or symbols, in the text.
 
-But, actually, I think we're already familiar with them. I mean, we have, in v1, a woman with a crown - so like a queen or a princess. And then, in v3, we've got a big red dragon.
+But, actually, I keep saying that Revelation is weird - butI think we're already familiar with these images. I mean, we have, in v1, a woman with a crown - so like a queen or a princess. And then, in v3, we've got a big red dragon.
 
 A princess and a dragon - which just sounds like a fairy tale, right? Think St. George or Sleeping Beauty... or Shrek. It's a fairy tale! I mean, obviously there's a lot going on here, but this isn't anything unfamiliar!  People have always loved to tell each other tales of great big monsters, and beautiful royal maidens. But this story is real. Which is *awesome*. And so just, as we look at this passage, immerse yourself in these images, allow these characters to fill your imaginations. Just let it wash over you. Because this is a fairy tale worth listening to.
 
@@ -41,7 +41,7 @@ And so Michael and his angels **strike** him down, and he falls, twisting and sc
 
 And **that's** reality through Jesus' eyes. The dragon is defeated. The end. 
 
-Except not quite yet. There's more Jesus wants to show us, look at the end of v12 :
+Except we're not quite done yet. There's more Jesus wants to show us, look at the end of v12 :
 
 *"[Because the dragon, now,] is filled with fury,
  because he knows that his time is short.*
@@ -67,10 +67,9 @@ Satan pursues and persecutes Jesus' people with all of his black fury, but just 
 so that she might fly to the place prepared for her in the wilderness,
 where she would be taken care of..."*
 
-Ultimately, we are taken care of. Our brothers and sisters in Nigeria are taken care of. No matter how much Satan flails and shrieks, his time is short. His final destruction is coming - we'll see that tomorrow.
+Ultimately, we are taken care of. Our brothers and sisters in Nigeria are taken care of. No matter how much Satan flails and shrieks, his time is short. His final destruction is coming - we'll see that tomorrow morning.
 
-He may be able to kill our bodies, he may try to crush us with the guilt of our sin. Every story has a struggle. But if we're in Christ, he is already defeated. That doesn't mean it's not hard now, but *this* is what is true.
-If we've truly confessed Jesus as our Lord, then victory is ours. 
+He may be able to kill our bodies, he may try to crush us with the guilt of our sin. Every story has a struggle. But if we're in Christ, he is already defeated. And the end is coming. That doesn't mean it's not hard now but, if we've truly confessed Jesus as our Lord, then victory is ours. 
 
 Did you see that in v11? Look at it :
 
